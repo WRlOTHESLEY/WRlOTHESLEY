@@ -15,6 +15,9 @@
 
 
 <p align="center">
-  <a href="https://rentry.co/wrlette">more about me !!! </a>
+  <a href="https://rentry.co/wriotheslIey">more about me !!! </a>
   <a href="https://meropide.123guestbook.com/#">sign my guestbook!</a>
+</p>
+<p align="center">
+  <a href="https://rentry.co/neuvivi">my boyfriend's rentry :3 </a>
 </p>
