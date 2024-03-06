@@ -13,6 +13,9 @@
 <img src="https://cdn.discordapp.com/attachments/1062426540786319370/1130588831431806986/WrioMains_Divider_02.png?ex=65e62766&is=65d3b266&hm=861728b5bcaad7112df37b84b8036ddffb83853b38ea23ab856e35324f93f963&" width="540" height="" border="40" />
 </p>
 
+<p align="center">
+ <video src= https://github.com/wriotthesley/wriotthesley/assets/135394748/cbce4dac-6623-49c6-b25d-903d07875b36 width="640" height="360" border="10"/>
+</p>
 
 <p align="center">
   <a href="https://rentry.co/wriotheslIey">more about me !!! </a>
