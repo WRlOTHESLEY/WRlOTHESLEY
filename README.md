@@ -19,4 +19,4 @@
  
 <div align="center">
 
-#### [main rentry](https://rentry.co/wriotheslIey) ㅤ[guestbook](https://meropide.123guestbook.com/)ㅤ [partner's rentry](https://rentry.co/neuvivi)<p/>
+#### [main + partners rentry](https://rentry.co/wriothesleyneuvillette) ㅤ[guestbook](https://meropide.123guestbook.com/)ㅤ <p/>
