@@ -1,10 +1,8 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/9507367cda76a0bbee4f7991ed81eddd/e93784e4420155a5-18/s250x400/d9016961304b0af266551e6980c5ab63c3dbe2cd.pnj" width="240" height="125" border="10"/>
+<img src="https://files.catbox.moe/0v69io.gif" width="500" height="309" border="10"/>
 </p>
-
  <p align="center">
- $${\color{maroon}wriothesley}$$
-  <em>he they</em>
+ <em>he they</em>
  </p>
  <p align="center">
    <em>mlm biflux ─ taken</em>
@@ -15,8 +13,12 @@
 </p>
  <p align="center">
  $${\color{maroon}links}$$
+  ㅤㅤ
  </p>
+
  
 <div align="center">
+ 
+[![](https://files.catbox.moe/r0414x.png)](https://rentry.co/wriothesleyneuvillette)ㅤㅤ[![](https://files.catbox.moe/qdaeia.png)](https://meropide.123guestbook.com/)
 
-#### [main + partners rentry](https://rentry.co/wriothesleyneuvillette) ㅤ[guestbook](https://meropide.123guestbook.com/)ㅤ <p/>
+</div>
