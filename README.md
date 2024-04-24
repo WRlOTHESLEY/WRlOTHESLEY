@@ -2,9 +2,9 @@
 <img src="https://files.catbox.moe/0v69io.gif" width="500" height="309" border="10"/>
 </p>
 <p align="center">
- <em><b>VOTE BOOTHILL FOR MOST CHRONICALLY ONLINE PLAYER NOW!!!</b></em><br><br>
+<em><b> support ur best friend wriothesley and bring BOOTHILL DOWNNNNN</b></em><br><br>
  <img src="https://files.catbox.moe/ixbnsj.gif"/><br><br>
-<em><b> support ur best friend wriothesley and bring BOOTHILL DOWNNNNN</b></em>
+ <img src="https://camo.githubusercontent.com/be597b664706170e40c61fd518e45bfa9aff24c0b67203bc7b27c8b287ebd4d4/68747470733a2f2f66696c65732e636174626f782e6d6f652f3932767769642e676966"/> <br><br>
 </p>
 
 <div align="center">
