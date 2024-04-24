@@ -3,7 +3,7 @@
 </p>
 <p align="center">
  <em><b>VOTE BOOTHILL FOR MOST CHRONICALLY ONLINE PLAYER NOW!!!</b></em><br><br>
- <img src="https://s5.ezgif.com/tmp/ezgif-5-79a3ea98e6.gif"/><br><br>
+ <img src="https://files.catbox.moe/ixbnsj.gif"/><br><br>
 <em><b> support ur best friend wriothesley and bring BOOTHILL DOWNNNNN</b></em>
 </p>
 
