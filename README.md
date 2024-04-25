@@ -9,7 +9,7 @@
 
 <div align="center">
 
- [vote here](https://twitter.com/ponytown_awards) [do your daily click!](https://arab.org/click-to-help/)
+ [vote here](https://twitter.com/ponytown_awards)ㅤ/ㅤ[do your daily click!](https://arab.org/click-to-help/)
 <br> <br>
 </div>
  <p align="center">
