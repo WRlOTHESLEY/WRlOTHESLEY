@@ -1,7 +1,7 @@
 <br><br><br>
 <div align="center">
  
-[𝙑𝙊𝙏𝙀 𝙁𝙊𝙍 𝙑𝘼𝙇𝙇𝙊𝙉](https://twitter.com/ponytown_awards)ㅤㅤ[𝘿𝘼𝙄𝙇𝙔 𝘾𝙇𝙄𝘾𝙆𝙎!](https://arab.org/click-to-help/)
+[𝙑𝙊𝙏𝙀 𝙁𝙊𝙍 𝙈𝙀](https://twitter.com/ponytown_awards)ㅤㅤ[𝘿𝘼𝙄𝙇𝙔 𝘾𝙇𝙄𝘾𝙆𝙎!](https://arab.org/click-to-help/)
 <br><br>
 </div>
  <p align="center">
