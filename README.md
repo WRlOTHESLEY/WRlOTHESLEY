@@ -11,7 +11,7 @@ he theyㅤwasianㅤlearning jp <br><br>
 </p>
 <div align="center">
  
-[𝙍𝙀𝙉𝙏𝙍𝙔](https://rentry.co/wriothesleyneuvillette)ㅤㅤ[𝙂𝙐𝙀𝙎𝙏𝘽𝙊𝙊𝙆](https://meropide.123guestbook.com/)
+[𝙍𝙀𝙉𝙏𝙍𝙔](https://rentry.co/dukeofthefortressofmeropide)ㅤㅤ[𝙂𝙐𝙀𝙎𝙏𝘽𝙊𝙊𝙆](https://meropide.123guestbook.com/)
 
 </div>
 
