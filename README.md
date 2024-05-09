@@ -5,7 +5,7 @@
 <br><br>
 </div>
  <p align="center">
-<img src="https://file.garden/ZiyMFQQoJTlsDCta//graphics/rahhh111%20copy.gif" width="640" height="257" border="1"/> <br><br>
+<img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/rahhh111%20copy.gif" width="640" height="257" border="1"/> <br><br>
 𝙒𝙍𝙄𝙊𝙏𝙃𝙀𝙎𝙇𝙀𝙔ㅤ 𝘿𝙐𝙆𝙀 <br><br>
 he theyㅤwasianㅤlearning jp <br><br>
 </p>
