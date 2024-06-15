@@ -1,17 +1,19 @@
 <br>
 <p align="center">
-<img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/wrlothesley2.png" /> <br>
-<img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/wrlothesley1.png" /> <br>
+<img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/readme3/divider%201" /> <br>
+<img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/readme3/READ" /> <br>
 <div align="center">
+ 
  
 [𝘿𝙄𝙎𝘾𝙊𝙍𝘿 𝙃𝙊𝙏𝙇𝙄𝙉𝙆𝙎](https://rentry.co/discordhotlinks)ㅤㅤ[𝘿𝘼𝙄𝙇𝙔 𝘾𝙇𝙄𝘾𝙆𝙎!](https://arab.org/click-to-help/)
 <br><br>
 [𝙍𝙀𝙉𝙏𝙍𝙔](https://rentry.co/-WRlOLETTE)ㅤㅤ[𝙍𝙀𝙏𝙍𝙊𝙎𝙋𝙍𝙄𝙉𝙂](https://retrospring.net/@WRlOTHESLEY)
 <br><br>
-</div>
 
+<img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/readme3/FUCK%20YOU" /> <br>
+</div>
 <p align="center">
-<img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/wrlothesley3.png" /> <br>
+<img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/readme3/divider%202" /> <br>
 </p>
 <br>
 
