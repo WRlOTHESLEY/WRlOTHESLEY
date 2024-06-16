@@ -19,7 +19,7 @@
 
 [𝘿𝙄𝙎𝘾𝙊𝙍𝘿](https://discord.com/users/664277846390210591)ㅤ(friends/green name only)ㅤ[𝘼𝙍𝙏𝙁𝙄𝙂𝙃𝙏](https://artfight.net/~judiciaries)
 <br><br>
-["𝙋𝙊𝙋𝙐𝙇𝘼𝙍" 𝙜𝙧𝙤𝙪𝙥𝙨](https://rentry.co/)ㅤㅤ[𝙍𝙀𝙎𝙊𝙐𝙍𝘾𝙀𝙎](https://rentry.co/ulzzang)
+["𝙋𝙊𝙋𝙐𝙇𝘼𝙍" 𝙜𝙧𝙤𝙪𝙥𝙨](https://rentry.co/ptpopularpeople)ㅤㅤ[𝙍𝙀𝙎𝙊𝙐𝙍𝘾𝙀𝙎](https://rentry.co/ulzzang)
 <br><br>
 </div>
 <p align="center">
