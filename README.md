@@ -1,7 +1,12 @@
 <br>
 <p align="center">
 <img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/readme3/divider%201" /> <br>
+<div align="center">
+ 
+![](https://komarev.com/ghpvc/?username=WRlOTHESLEY) <br>
+
 <img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/readme3/READ" /> <br>
+</div>
 <div align="center">
  
  
