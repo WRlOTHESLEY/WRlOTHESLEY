@@ -12,7 +12,7 @@
  
 [𝘿𝙄𝙎𝘾𝙊𝙍𝘿 𝙃𝙊𝙏𝙇𝙄𝙉𝙆𝙎](https://rentry.co/discordhotlinks)ㅤㅤ[𝘿𝘼𝙄𝙇𝙔 𝘾𝙇𝙄𝘾𝙆𝙎!](https://arab.org/click-to-help/)
 <br><br>
-[𝙍𝙀𝙉𝙏𝙍𝙔](https://rentry.co/-WRlOLETTE)ㅤㅤ[𝙍𝙀𝙏𝙍𝙊𝙎𝙋𝙍𝙄𝙉𝙂](https://retrospring.net/@WRlOTHESLEY)
+[𝙍𝙀𝙉𝙏𝙍𝙔](https://rentry.co/-WRlOLETTE)ㅤㅤ[𝙍𝙀𝙏𝙍𝙊𝙎𝙋𝙍𝙄𝙉𝙂](https://retrospring.net/@WRlOTHESLEY)ㅤㅤ[𝘼𝙏𝘼𝘽𝙊𝙊𝙆](https://wriothesIey.atabook.org)
 <br><br>
 
 <img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/readme3/FUCK%20YOU" /> <br>
