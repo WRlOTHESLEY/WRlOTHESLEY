@@ -1,4 +1,6 @@
-![](https://komarev.com/ghpvc/?username=WRlOTHESLEY)
+<br>![](https://komarev.com/ghpvc/?username=WRlOTHESLEY)
+<br><br>
+[petition to stop whitewashing in genshin and hyv games. sign if u want proper rep in hoyoverse!](https://www.change.org/p/stop-cultural-appropriation-and-whitewashing-in-mihoyo-games/exp/v2/cl_/cl_sharecopy_490127543_en-GB/4/1343729708?recruiter=1343729708&recruited_by_id=6c12e2c0-4179-11ef-95dc-8b77a089c950&utm_source=share_petition&utm_campaign=psf_combo_share_initial&utm_term=psf_combo_share_initial&utm_medium=copylink&utm_content=cl_sharecopy_490127543_en-GB%3A4)
 <br><br>
  dude idgaf if u whitewash natlan/sumeru characters dni! ur sick in the head and clearly don't care abt poc rep :3 
 <br> <br>
