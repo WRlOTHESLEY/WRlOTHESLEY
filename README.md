@@ -5,7 +5,7 @@
 if you support hoyoverse (a chinese company which is directly influenced by the cn gov) for CLEARLY showing colourism dni. do not interact. 
 <br> <br>
 if you also intentionally make skins of poc (natlan/sumeru) characters as white, also dni! 
-<br> these peoples have already been oppressed by white caucasians and ur not helping. :)
+<br> these peoples have already had history of being colonised/oppressed by white countries, and them being white kind of seems humiliating!
 <br> <br>
 wriothesley he they <br> here's my links below, i'm lazy sorry.
  
